@@ -1,1 +1,2 @@
+[DESIGN - PROJ PENSAMENTO COMPUTACIONAL.pdf](https://github.com/user-attachments/files/27263991/DESIGN.-.PROJ.PENSAMENTO.COMPUTACIONAL.pdf)
 
